@@ -1,4 +1,4 @@
-# 
+# Personalizado FL Studio plantillas para Mac OS | Inteligente FL Studio plantillas para PC Windows. Con seguimiento de movimiento y transmisión en vivo — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
